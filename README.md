@@ -4,7 +4,7 @@
 -  I will probably never use this other than for sharing art.
 -  How to reach me (Through; NokukomurI in patreon, Nokukomuri in insta, or Nokukomuri in tumblr and twitter!)
 -  Pronouns: He/him
--  Fun fact: ...
+-  Fun fact: Lycoris radiata's.
 
 <!---
 Nokukomuri/Nokukomuri is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

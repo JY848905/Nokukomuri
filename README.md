@@ -1,4 +1,4 @@
--  Hi, I’m Nokukomuri
+-  Hi, I’m Jy!
 -  I’m interested in psychology, writing, and music!
 -  I’m currently learning art and writing.
 -  I will probably never use this other than for sharing art.
